@@ -7,3 +7,4 @@ Shame on you!
 
 If you want to be removed from this list, you must start to follow the rules of the game and buy a skin to support game developers.
 
+[List of teamers/cheaters](user-list)
